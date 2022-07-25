@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Val
+- 👀 I’m interested in become a nomad
+- 🌱 I’m currently learning to code
+- 💞️ I’m looking to collaborate on .Basic project to learn and  be part of the comunity
+- 🧿 I’m a bit Spiritual :)
